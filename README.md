@@ -1,1 +1,1 @@
-# -这个仓库是用于记录成长
+# -This repository is used to record how many times Chocolate🦌 has misfired.
