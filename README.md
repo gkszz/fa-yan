@@ -155,40 +155,42 @@ there's a trace of you.
 #
 #
 ###小故事
-七叶：“我有点想吃爱液煮鸡蛋，你想不想吃啊。 ”
+Seven Leaves: "I kinda want to try mugwort-boiled eggs. Want some?"
 
-巧克力：“艾叶煮鸡蛋？ 听起来不错，试一下吧。 ”
+Chocolate: "Mugwort-boiled eggs? Sounds interesting. Let's try it."
 
-七叶：“这可是你说的哦。 ”
+Seven Leaves: "You said it yourself."
 
-巧克力还没反应过来，便被七叶以迷狱沙门般的速度捆绑起来。
+Before Chocolate could react, Seven Leaves bound her with lightning speed reminiscent of a prison gate slamming shut.
 
-“嗯？！” 转眼间，只见巧克力被绳子吊在空中，左腿着地，双手和右腿被高高吊起，就连穿在身上的女仆装也被掀起然后固定好，而衣服下的内裤则早已不翼而飞。
+"Wha-?!" In an instant, Chocolate found herself suspended mid-air with her left foot barely touching the ground, hands and right leg hoisted high. Her maid uniform flipped up and secured, revealing missing underwear beneath.
 
-“正好前段时间没把它退掉，现在正是用这个的时候。” 说着，七叶拿出了一根假阳具型的口球，却没有塞入巧克力的嘴里，而是塞入了巧克力的小穴里，用附带的带子绑紧大腿根部的位置以固定好，并打开了开关——这个口球还有震动功能。
+"Good thing I didn't return this earlier." Seven Leaves produced a dildo-shaped gag, but instead of inserting it into Chocolate's mouth, she pressed it against Chocolate's vulva. Securing it tightly with thigh straps, she activated the vibration function - the toy's length perfectly aligned with Chocolate's G-spot.
 
-“不要、快拔出来，要去…… 要去了啊~”好巧不巧，这个震动口球的长度刚好顶到巧克力的 G 点。 巧克力的身体被刺激得不停痉挛，爱液则以肉眼可见的速度从震动口球的洞里流了出来，滴在了七叶摆在她身下的锅里。
+"N-no... Take it out... I'm gonna... Ah~!" Chocolate's body convulsed uncontrollably as arousal fluid visibly streamed through the toy's hollow core, dripping into the pot Seven Leaves had positioned beneath.
 
-“你好吵啊。” 七叶拿出另一个普通口球，塞入了巧克力的嘴里并绑好。
+"Too noisy." Seven Leaves inserted a regular gag into Chocolate's mouth.
 
-“什么时候流满半锅，什么时候开始煮。”
+"We'll start cooking when the pot's half full."
 
-“呜呜！”
+"Mmmph!"
 
-几个小时后，锅中的爱液终于积攒了过半，见状，七叶便将几个鸡蛋放入锅中，煮了起来。
+Hours later, the pot finally collected enough fluid. Seven Leaves added eggs and began boiling.
 
-“呜——”
+"Mmmph-!"
 
-“什么？ 放你下来？ 等我煮完再说。 ”
+"What? Let you down? After cooking."
 
-因为担心不够入味，所以七叶足足煮了半个小时。
+Wanting full flavor infusion, Seven Leaves simmered them for thirty minutes.
 
-“好，终于煮好了，让我尝尝味道。 嗯~果然全是巧克力的味道。 ”
+"Done at last. Let's taste." She peeled an egg. "Mmm~ Definitely Chocolate-flavored."
 
-七叶又剥了几个鸡蛋，拿下了巧克力嘴里的口球，问道：“你吃吗？ ”
+After peeling more eggs, Seven Leaves removed the gag. "Want some?"
 
-“放我下来……”巧克力的眼里早已没有了高光。
+"Let me down..." Chocolate's eyes had lost all sparkle.
 
-“好吧，她不吃，我先吃够了再说。”
+"Fine. She won't eat. I'll enjoy these first."
+
+看不懂去https://wt.tepis.me/#/chapter/%E5%BE%AE%E5%B0%8F%E8%AF%B4%E9%9B%86/%E7%88%B1%E6%B6%B2%E7%85%AE%E9%B8%A1%E8%9B%8B.html~selection=2,0,36,17
 
 qq群：735789928
