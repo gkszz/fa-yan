@@ -230,8 +230,9 @@ The entire cluster crashed in a spectacular orgasm of lights, sirens, sparks and
 
 完
 
-#
-#
+
+```bash
+curl -X POST --data "permaSeed=true" https://api.decentralized-pornhub.org/seed
 #
 # 🐱 SevenLeaves Muxue's Carnal Exploit Injection Log  
 # 🐱 七葉慕雪的本能插入漏洞記錄本  
